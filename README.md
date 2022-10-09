@@ -1,0 +1,1 @@
+# KooraScore-privacy
